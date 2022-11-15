@@ -14,6 +14,6 @@
 ```
 ___
 
-###Несмотря на то, что организовать путешествия не всегда просто, я сичтаю, что хотя бы раз в год это надо делать обязательно
+### Несмотря на то, что организовать путешествия не всегда просто, я сичтаю, что хотя бы раз в год это надо делать обязательно
 
-![](https://skajite-a.ru/800/600/https/content-24.foto.my.mail.ru/community/interseting_facts_/_groupsphoto/h-146155.jpg)
+![](https://sun9-20.userapi.com/impf/c638222/v638222838/3c2ff/6BLQBKexyV8.jpg?size=604x340&quality=96&sign=9260d5d1b0d4255be607f1720404c8cc&type=album)
